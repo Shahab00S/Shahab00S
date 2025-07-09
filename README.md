@@ -3,6 +3,6 @@
 
 - 📫 Connect with me: [Facebook](https://www.facebook.com/shahab.shahid.10/)  
 - 💬 WhatsApp: [+93 708 080 639](https://wa.me/93708080639)  
-- 😄 Fun fact: Bibliophile & Tech Explorer
+- 😄 Fun fact: Bibliophile & Technology Enthusiast
 
 
